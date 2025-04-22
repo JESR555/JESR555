@@ -15,4 +15,4 @@ I´m Jesús Elías, knowed as my alter ego Dan Luminal on videogames and social 
 
 🙌I appreciate any knowledge u can share to me.
 
-🚗Other interest of my are cars, i mean, I like to search and learn by myself everything about any car. In my freetimes I usually fix it.
+🚗Other interest of my are cars, i mean, I like to search and learn by myself everything about any car. In my freetimes I usually fix my car.
