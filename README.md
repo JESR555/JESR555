@@ -12,7 +12,7 @@ I´m Jesús Elías, knowed as my alter ego Dan Luminal on videogames and social 
 
 🥶One of the craziest stories I have is my social service on my last grade on the university. Very complex project in wich I had to learn some new technologies (MERN stack). 
 
-🤖I have been working on AI in my last grade of the career.
+🤖I had been working on AI in my last grade of the career.
 
 📩I'm open to participate in any project, if u have some ideas or need help with anything, write me asap: jesus_sierra20@hotmail.com
 
