@@ -1,6 +1,6 @@
 Hi there 👋, welcome to my Own Readme.
 
-I´m Jesús Elías, knowed as my alter ego Dan Luminal on videogames and social networks.
+I´m Jesús Elías, known as Dan Luminal on videogames and social networks
 
 👩🏻‍🎓Student from National Technological Institute of Mexico / Campus Chihuahua II. In the career of Computer Systems Engineering, specialited in Full Stack Development.
 
